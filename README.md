@@ -1,1 +1,0 @@
-# WindowsApp-Slidely.AI-Task
